@@ -8,7 +8,7 @@
 
 
 <img width="1204" height="104" alt="1000148544" src="https://github.com/user-attachments/assets/b12b0a99-7204-4ff4-9595-e420d6599bf3" />
-      she . aroace .
+      she / her . aroace .
 dniuf /dncucf
 
 you can c&h freely . kisses r ok
