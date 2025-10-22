@@ -1,4 +1,1 @@
-<img width="1000" height="671" alt="1000148633" src="https://github.com/user-attachments/assets/395a4835-8e2e-40ef-a1ef-6be1361bc9b1" />
-she . aroace .
-dniuf /dncucf
-you can c&h freely . kisses r ok
+<img width="360" height="371" alt="1000148655" src="https://github.com/user-attachments/assets/9a1b6803-4734-45f8-bfa2-576958372a7d" />
